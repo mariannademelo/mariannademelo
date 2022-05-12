@@ -1,4 +1,4 @@
-## Hi, I'm Mari! 👋
+## Hi, I'm Marianna! 👋
 
 I'm a self motivated, creative aspiring programmer looking for an opportunity to work as a web developer intern or junior developer. I have a newfound passion for converting codes into real life applications and to bring ideas to life. I am always willing to learn new technologies that are part of this world of programming and love to enhance my existing skills. 
 
